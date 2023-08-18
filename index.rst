@@ -1,8 +1,3 @@
-===
-FAQ
-===
-
-
 Free Roof Replacement for Seniors
 =================================
 
